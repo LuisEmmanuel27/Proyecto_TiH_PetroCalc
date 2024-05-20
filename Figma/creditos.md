@@ -1,0 +1,4 @@
+1. <a href="https://www.flaticon.es/iconos-gratis/petroleo" title="petróleo iconos">Petróleo iconos creados por Freepik - Flaticon</a>
+2. <a href="https://www.freepik.es/vector-gratis/industria-isometrica-industria-produccion-transporte-extraccion-petroleo-petroleo-gatos-bomba-plataformas-perforacion-tanques-torre_7250461.htm#fromView=search&page=1&position=2&uuid=2a9c12d4-14bf-46ab-b2b6-b916b88c0b33">Imagen de macrovector en Freepik</a>
+3. <a href="https://www.freepik.es/vector-gratis/poster-campo-petrolifero_3889576.htm#fromView=search&page=1&position=0&uuid=2a9c12d4-14bf-46ab-b2b6-b916b88c0b33">Imagen de macrovector en Freepik</a>
+4. <a href="https://www.freepik.es/vector-gratis/formulas-cientificas-dibujadas-mano-sobre-fondo-pizarra_7604664.htm#fromView=search&page=1&position=35&uuid=0e1cff90-9022-40c3-b34c-f87a589b4606">Imagen de freepik</a>
